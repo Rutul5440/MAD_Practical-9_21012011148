@@ -5,6 +5,6 @@ AIM : What is Frame by Frame Animation? What is Twin Animation? How can you achi
 
 Output : 
 
-![WhatsApp Image 2023-10-19 at 12 11 27](https://github.com/Rutul5440/MAD_Practical-9_21012011148/assets/121927117/f746e543-38c6-446b-a575-ec00fa119048)
+![image](https://github.com/Rutul5440/MAD_Practical-9_21012011148/assets/121927117/431b512d-e189-4377-b85c-9ad9573d24ae)
 
-![WhatsApp Image 2023-10-19 at 12 11 27](https://github.com/Rutul5440/MAD_Practical-9_21012011148/assets/121927117/bd7fffbb-15e8-45de-9a7f-42c779cdace5)
+![image](https://github.com/Rutul5440/MAD_Practical-9_21012011148/assets/121927117/4a119ace-883e-4aae-bb19-558e9340af21)
